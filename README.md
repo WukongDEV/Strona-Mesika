@@ -1,0 +1,1 @@
+mesik to pseudol, nie ufaj mu! Posiada scamerskiego bota Specty. Pamiętaj, że Specty to ściek a Wukong to szef ez.
